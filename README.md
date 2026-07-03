@@ -16,4 +16,4 @@ I help fast-growing tech companies find exceptional engineering talent.
 
 **Let's connect!**
 - [LinkedIn](https://www.linkedin.com/in/richardkrakora/)
-- [Calendly](your-calendly)
+- [Calendly](https://calendly.com/ecruiting))
